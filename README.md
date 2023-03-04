@@ -1,0 +1,1 @@
+# Yakindaki-Koordinatlari-Bulma-Scripti
